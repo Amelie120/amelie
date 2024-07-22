@@ -1,4 +1,4 @@
-# amelie
+# About me :)
 My personal repository
 
 🤖 AI Enthusiast 📚
